@@ -1,1 +1,0 @@
-# Kanyarat-102sqh7kg
